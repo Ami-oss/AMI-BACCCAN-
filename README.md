@@ -1,7 +1,7 @@
 # AMIN-M.S-DELOREAN-
 INSPECTOR GENERAL IN MARSHALL ISLANDS 🇲🇭 
 ![1000009264](https://github.com/user-attachments/assets/ecef7ded-2aa2-4a5a-92d2-6fe641dd9b9a)
-![1000007971](https://github.com/user-attachments/assets/7bb59130-6d1f-4d79-aed6-033449ed6abe)
+
 ![1000007932](https://github.com/user-attachments/assets/2f4a2371-88c1-4325-b04d-e411386a0ca2)
 ![1000008848](https://github.com/user-attachments/assets/8c38ace3-5587-46f1-9767-e21387a40ae4)
 ![1000008865](https://github.com/user-attachments/assets/84c5b384-b969-4d9e-9aa4-f00a8f533f12)
